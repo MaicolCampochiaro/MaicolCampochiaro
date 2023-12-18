@@ -29,5 +29,5 @@ Let's connect and build amazing things together! 💻✨
 ### Connect with Me
 
 - **LinkedIn:** [[Your LinkedIn Profile](https://www.linkedin.com/in/maicol-campochiaro-7a377a232/)]
-- **Portfolio:** [Link to your portfolio or personal website]
+- **Portfolio:** Work in progress!
 
