@@ -28,6 +28,6 @@ Let's connect and build amazing things together! 💻✨
 
 ### Connect with Me
 
-- **LinkedIn:** [[Your LinkedIn Profile](https://www.linkedin.com/in/maicol-campochiaro-7a377a232/)]
-- **Portfolio:** Work in progress!
+- **LinkedIn:** [Maicol Campochiaro](https://www.linkedin.com/in/maicol-campochiaro/)
+- **Portfolio:** www.maicolcampochiaro.ch
 
